@@ -2,7 +2,7 @@
 
 
 
-\*3rd Year BTech CSE | Targeting IIT Dhanbad/Bhubaneswar | Started: Dec 6, 2025\*
+\*3rd Year BTech CSE | Targeting IIT for internship | Started: Dec 6, 2025\*
 
 
 
